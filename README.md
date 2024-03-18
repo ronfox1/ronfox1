@@ -2,7 +2,7 @@
 - 👀 I’m interested in a career in Cybersecurity.
 - 🌱 I’m currently working on my Cybersecurity Certificate from Google
 - 💞️ I’m looking to collaborate on projects related to Cybersecurity
-- 📫 I can be reached by email at fox.ronald2gmail.com 
+- 📫 I can be reached by email at fox.ronald@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
